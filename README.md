@@ -59,8 +59,8 @@ Worked with Google Cloud technologies and explored:
 
 ## 📫 Connect With Me
 
-- LinkedIn: [Add your LinkedIn profile here]
-- Email: [Add your email here]
+- LinkedIn: [https://www.linkedin.com/in/bhoomika-t-455b44272]
+- Email: [bhoomikat960@gmail.com]
 
 ---
 
